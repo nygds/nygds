@@ -1,7 +1,12 @@
-# ola me chamo nicolly
+### bem vindo ao meu perfil
 
-sou estudante do maria griggio de cafelandia pr 
-tenho 15 anos 
-meu insta @gds.nicolly  procuro amigos
+ me chamo Nicolly 🥂
 
-![](https://media.tenor.com/mMVnCaqJ4D8AAAAC/loli-dance.gif)
+ -sou estudante do maria griggio de cafelandia pr  
+ 
+ -tenho 15 anos 
+ 
+ -meu insta @gds.nicolly  procuro amigos
+
+![](https://media.tenor.com/CyRwQ0QLG6QAAAAC/catgirl-dance.gif)
+
