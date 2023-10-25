@@ -1,12 +1,15 @@
-### bem vindo ao meu perfil
+## bem vindo ao meu humilde perfil 🐱
 
- me chamo Nicolly 🥂
+ - me chamo Nicolly 🥂
 
- -sou estudante do maria griggio de cafelandia pr  
+ - sou estudante do maria griggio de cafelandia pr ✍🏻
  
- -tenho 15 anos 
+ - tenho 15 anos 
  
- -meu insta @gds.nicolly  procuro amigos
+ - meu insta 
+ 
+- https://instagram.com/gds.nicolly?igshid=OGQ5ZDc2ODk2ZA 
+-  procuro amigos 🙂
 
 ![](https://media.tenor.com/CyRwQ0QLG6QAAAAC/catgirl-dance.gif)
 
